@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GoldboyStrikes
 - 👀 I’m interested in Football/Soccer, science and reading
 - 🌱 I’m currently learning in school
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on nothing currently
 - 📫 How to reach me My email: adityagwala09@gmail.com My phone: +91 9811464521
 
 <!---
